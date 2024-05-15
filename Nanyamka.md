@@ -1,0 +1,1 @@
+estudando com a minha filha de 7 meses fazendo barrulho ao meu lado.
