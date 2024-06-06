@@ -1,2 +1,2 @@
 criando a branch Quarta!
-completar os exercicos
+Apaguei um comment
